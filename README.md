@@ -38,6 +38,7 @@
                                              I share a braincell with Ibara sometimes 
 
                       Anyways! My main nonsharing yumeships are Ibara Saegusa, Mika Kagehira and Hiyori Tomoe!
+                                               P.s.: I also yumeship with Nagisa Ran!
 <p align="center">
 <img width="150" height="20" alt="blinkiesCafe-I9" src="https://github.com/user-attachments/assets/5fc5d15c-3849-4017-b2fd-3291151b4b41" />
 <img width="150" height="20" alt="blinkiesCafe-qJ" src="https://github.com/user-attachments/assets/dd485b6f-4b30-42b5-8c6d-ba58d0a8532c" />
