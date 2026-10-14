@@ -66,6 +66,12 @@
 <img width="190" height="244" alt="27s_Guidance%29_Nagisa_Ran_Chibi" src="https://github.com/user-attachments/assets/b12ff420-5987-46c6-90d5-28da5e464e84" />
 <img width="190" height="244" alt="7" src="https://github.com/user-attachments/assets/a0729a04-28e2-40d2-95e9-81561519f3a1" />
 <img width="190" height="244" alt="29_Nagisa_Ran_Chibiomh" src="https://github.com/user-attachments/assets/b8645ecd-9ce0-480f-b989-678436863a0b" />
+<img width="190" height="244" alt="29_Nagisa_Ran_Chibio" src="https://github.com/user-attachments/assets/30b2dce8-ddbe-4841-87bf-72d7a2aeeb4d" />
+<img width="190" height="244" alt="29_Nagisa_Ran_Chibid" src="https://github.com/user-attachments/assets/194dd9e3-615d-4d97-98b3-c26ff3203508" />
+<img width="190" height="244" alt="29_Nagisa_Ran_Chibi" src="https://github.com/user-attachments/assets/1ab303c1-3dac-45fa-8c7f-00ed11b98d19" />
+
+
+
 
 - - -
 
