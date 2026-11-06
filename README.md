@@ -1,6 +1,24 @@
 <p align="center">
-WIP
+<img width="1000" height="462" alt="29_Jun_Sazanami_CG42" src="https://github.com/user-attachments/assets/e891f40c-400b-4fa9-8372-195110277667" />
+
 <p align="center">
-<img width="300" height="300" alt="Good-Smile-Arts-Shanghai-Huggy-Good-Smile-Ensemble-Photoroom" src="https://github.com/user-attachments/assets/7195c3c9-d798-4f1b-9b49-89f9d99ed83d" />
+<details>
+<summary>info</summary>
 
+♯ aki or akira
 
+♯ edenP
+
+♯ i collect merch when i have money
+
+♯ nagisa ran, jun sazanami, ibara saeguse nonsharing gachikoi
+
+♯ main oshis are nagisa and jun, I switch between them sometimes
+
+♯ i love my boyfriend kazuzu
+
+♯ thad, adora, maple - my gang
+
+♯ kage my twinoomf
+
+</details>
